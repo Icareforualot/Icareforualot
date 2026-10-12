@@ -2,10 +2,6 @@
 <p align="center">
 <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2FM-003s"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FM-003s&label=%E2%99%A1%20%20cupcakes%20baked&labelColor=%23f47373&countColor=%2337d67a&style=plastic" /></a>
 <p align="center">
-<img width="300" height="300" alt="image-861e-gradientmap pro" src="https://github.com/user-attachments/assets/03abe6b8-1dda-4c91-8a79-fc5ec42acb3a" />
-  <p align="center">
-<sup><sub>these arts are not mine!!</sub></sup>
-    <br>
     
 <img width="20" height="20" alt="68747470733a2f2f706978656c732e6372642e636f2f6173736574732f696d616765732f67616c6c65727934342f30313766386163322e6769663f763d3239343136313134" src="https://github.com/user-attachments/assets/a7077156-8627-4e79-83b1-98ae1437d053" />
 archie 𓂃 <sup><sub>or</sub></sup> 𓍼 sprout
